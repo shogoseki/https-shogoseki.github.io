@@ -1,0 +1,1 @@
+# https-shogoseki.github.io
